@@ -1,5 +1,14 @@
 # 关键词
-## 冰糖IO 张京华 京华 Overidea Overidea_China 备份 补档
+
+冰糖IO 张京华 京华 Overidea Overidea_China 备份 补档 PUA 出轨 嫖娼
+
+# 相关项目
+
+[2022bt_vs_jh](https://github.com/Arukassss/2022bt_vs_jh)
+
+[crystal_sugar](https://github.com/tsuzcx/crystal_sugar)
+
+[Firework](https://github.com/MossCG/Firework)
 
 # 文件目录结构
 
